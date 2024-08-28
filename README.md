@@ -17,3 +17,5 @@ Here are some ideas to get you started:
 Discord: [lightning1024](https://discordapp.com/users/1092500089999728670)  
 X (formerly Twitter): @aakdviet  
 Email: aakdviet@gmail.com  
+Snapchat: aduncan519
+Phone #: (720)-549-5090
